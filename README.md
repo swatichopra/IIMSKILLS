@@ -1,1 +1,1 @@
-# ***IIMSKILLS***
+# ***Technical Writing IIM Skills***
